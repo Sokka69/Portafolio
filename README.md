@@ -14,6 +14,6 @@
 ## Hecho por:
 
 ### Mario Morales 
-##Sokka69
+### Sokka69
 
 ### Linkedin: https://www.linkedin.com/school/aluracursos/
